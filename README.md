@@ -8,3 +8,4 @@ And like with Leo Tolstoy, for example, there are great quotes from him.
 So decided to add a fitting quote from him.
 
 #InformYourselfBoycotMSM
+_Assume everything you're presented with is propaganda and junk, keep asking questions, that's valuable._

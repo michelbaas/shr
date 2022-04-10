@@ -9,4 +9,4 @@ En net als bij Lev Tolstoj zijn er bijvoorbeeld mooie citaten van hem te vinden.
 Dus besloten om een passend citaat van hem toe te voegen.
 
 #InformeerJezelfBoycotMSM
-_Ga er vanuit dat alles wat je voorgeschoteld krijgt propaganda en rootzooi is, Blijf vragen stellen, dat is waardevol._
+_Ga er vanuit dat alles wat je voorgeschoteld krijgt propaganda en rotzooi is, Blijf vragen stellen, dat is waardevol._
